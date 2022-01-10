@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AnilkumarAllam
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Automation
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on to become a member in your team,if i get any chance
 - 📫 reach me through anil.allam@silvercar.com
 
 <!---
